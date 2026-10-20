@@ -1,0 +1,2 @@
+# manualpartenidade
+Manual  de Partenidade
